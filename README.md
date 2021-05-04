@@ -6,8 +6,9 @@
 
 蓝密包含三大功能：1、网聊加密，2、彩票AI预测，3、懒人文章自动生成。
 
-在这里公布一个也是github某大佬白嫖谷歌服务器的大姐姐在线免费观看（可下载）网址：Krcsg9M6h8RTH~vetbXgXNcodWqp~JjIZq~eJmc8LTeE7jQxDMEu~lsdNy0y5tsS
-（该网址用蓝密的默认密钥加密，请各位绅士复制字符串自行解密）
+在这里公布一个也是github某大佬白嫖谷歌服务器的大姐姐在线免费观看（可下载）网址:
+Krcsg9M6h8RTH~vetbXgXNcodWqp~JjIZq~eJmc8LTeE7jQxDMEu~lsdNy0y5tsS
+(该网址用蓝密的默认密钥加密，请各位绅士复制字符串自行解密)
 
 祝大家使用愉快！
 
